@@ -1,4 +1,8 @@
 - 👋 Ola !!  me chamo @Gabrielalura2414
 - 👀 Estou interessado em aprender  programar novas linguagens.
 - 🌱 Comecei a a aprender a programar javascript e scratch
--
+- 😎 tenho 15 anos
+- 😃 sou do BR = PR 
+- 🥰 estou gostando de fazer programação !!
+- 😗 pronomes ele/dele
+- 🤠 ------------------------------------------------- dê o melhor de vc -----------------------------------------------------------------------
