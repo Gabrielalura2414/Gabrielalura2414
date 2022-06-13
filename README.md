@@ -1,0 +1,4 @@
+- 👋 Ola !!  me chamo @Gabrielalura2414
+- 👀 Estou interessado em aprender  programar novas linguagens.
+- 🌱 Comecei a a aprender a programar javascript e scratch
+-
